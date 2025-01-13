@@ -22,5 +22,5 @@ título	40 year old couple exercising outdoors in the morning
 ✨ Features
 
 Conteúdo gerado via ChatGPT
-Imagens gerada via Leonardo.Ai
-Logo gerada via Bing
+Imagem gerada via Leonardo.Ai (https://cdn.leonardo.ai/users/eb58ddc9-853a-43f8-b12d-a81e34f55d05/generations/32541ebb-7351-49f9-993a-be9aa15f8211/21ddcee1-a5b1-440e-b641-8ca9c3da4c08.jpg)
+Logo gerada via Bing (https://sl.bing.net/gDW51D7DxxQ)
